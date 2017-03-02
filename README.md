@@ -1,1 +1,3 @@
 # CwiczenieAnd
+Projekt 
+Killer dwuji 
