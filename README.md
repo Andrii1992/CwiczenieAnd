@@ -1,3 +1,5 @@
 # CwiczenieAnd
 Projekt 
-Killer dwuji 
+Killer dwói
+
+SJP: dwója dwói, dwóję; dwó
